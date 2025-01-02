@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @LordTurtler
 - 👀 I’m interested in games and modding
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me discord (SheLovesVixi)
+- 📫 How to reach me, discord (SheLovesVixi)
 - 😄 Pronouns: He/Him
 
 <!---
